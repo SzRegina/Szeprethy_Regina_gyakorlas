@@ -1,0 +1,1 @@
+# Szeprethy_Regina_gyakorlas
